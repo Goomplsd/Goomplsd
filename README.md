@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Goomplsd
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on an fnf mod
+- 📫 How to reach me aaronasperasuarez@outlook.com
